@@ -1,5 +1,6 @@
 I love you so much that it's dripping
 ![Image](Untitled465_20260703061007.png)
+![Image](Untitled470_20260703074840.png)
 Dripping from my arms and such
 
 [carrd](https://nagiseishiroq.carrd.co/)
